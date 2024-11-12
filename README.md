@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @iamemmanue
+- 👋 Hi, I’m @iamemmanuel
 - 👀 I’m interested in ... getting an illustration project
 - 💞️ I’m looking to collaborate on ... New project
 - 📫 How to reach me ...
